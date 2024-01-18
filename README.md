@@ -69,7 +69,10 @@ Sub-Saharan Africa region  more Qty sold 38K in year 2012 and mostly years more 
 
 4. The Cosmetic & office supplies are the highest Revenue generate  products in domestic and international markets. 
 
-5. Offline channel  generate more sales 277K comparison to online channel sales 236K. 
+5. Offline channel  generate more sales 277K comparison to online channel sales 236K.
+
+
+ Thank you for your interest and time. Feel free to give your valuable suggestions and connect with me https://www.linkedin.com/in/goutam-kuiri-949b632a6
 
 
 
