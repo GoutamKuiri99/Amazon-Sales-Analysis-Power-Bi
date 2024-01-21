@@ -71,6 +71,7 @@ Sub-Saharan Africa region  more Qty sold 38K in year 2012 and mostly years more 
 
 5. Offline channel  generate more sales 277K comparison to online channel sales 236K.
 
+https://github.com/GoutamKuiri99/Amazon_Sales_Analysis_on_Power_Bi_Project/assets/154737280/1f03cfdc-3a45-411e-be3d-ea3966b6ef45
 
  Thank you for your interest and time. Feel free to give your valuable suggestions and connect with me https://www.linkedin.com/in/goutam-kuiri-949b632a6
 
